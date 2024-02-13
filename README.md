@@ -2,7 +2,7 @@ eu criei isso aq so pra criar ok?... n sei mexer em nada disso :/ ( I created th
 
 🤍 opa, eu sou o @Muctilon, Desculpa se você não enteende portugues 🖤 ( hi, i am @Muctilon, Sorry if you don't understand Portuguese ) 
 
-Jogo minecraft kk 💜 ( i am minecraft player :P )
+HANAKO KUNNNN!!!
 
 minha cor preferida é roxo ( my favorite color is purple )
 
