@@ -5,3 +5,5 @@ eu criei isso aq so pra criar ok?... n sei mexer em nada disso :/ ( I created th
 Jogo minecraft kk 💜 ( i am minecraft player :P )
 
 minha cor preferida é roxo ( my favorite color is purple )
+
+![image](https://github.com/Muctilon/Muctilon/assets/159593450/368c1f45-a693-41a1-8c8d-257568385220)
